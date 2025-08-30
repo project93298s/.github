@@ -4,6 +4,7 @@
 
 **Battlefield VI (BF6)** takes massive-scale battles to the next level with huge maps, vehicles, and chaotic firefights. But when every shot counts, nothing beats the advantage of a **BF6 aimbot**. This cheat tool gives you flawless accuracy, instant headshots, and total control in every match. Whether you’re sniping from afar or storming objectives, the aimbot ensures you never miss.
 
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://bf6-aimbot.github.io/.github/)
 ---
 
 ## What is the BF6 Aimbot?
